@@ -1,6 +1,6 @@
 <div align="center">
   
-<img src="https://64.media.tumblr.com/f5c1211e3ab41bdd2f6b2623be1b3080/7068c91b5da72c2d-96/s75x75_c1/ceb06fc7493bdf27c649de8b129daba8c7c7f1c7.gifv" width="22px"> ![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label="_I_promise_that_I'll_run_away_with_you_"&color=ba1611)
+<img src="https://64.media.tumblr.com/66f2e71c635082f1c769d2ea60b190e3/7068c91b5da72c2d-66/s75x75_c1/a8ef3026fcace63583910874324548457ee17a39.gifv">⠀![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label="_I_promise_that_I'll_run_away_with_you_"&color=000000) <img src="https://64.media.tumblr.com/2c894944273552ec7b527c969e9c64d0/22446b416299184a-c8/s75x75_c1/297b3a07366c0695c7131feefb7992a60a175714.gifv">
 
 <img src="nine2.png" width="450px">
 
